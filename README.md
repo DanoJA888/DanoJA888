@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @DanoJA888 (Daniel lol)
-- 👀 I’m interested in Television/Film🎬, Football⚽, YouTube🎥, VideoGames🎮, Comics🕷️
-- 🌱 I’m currently learning ... how to code and what can be done in CS:)
+- 👀 I’m interested in Television/Film/Anime🎬, Football⚽, VideoGames🎮, Comics🕷️, Formula 1 🏎️
+- 🌱 I’m currently learning ... how to code and what can be done in CS
 - 💞️ I’m looking to collaborate on ... smaller, simpler projects for beginners
 - 📫 How to reach me ... djaguilargzz01@gmail.com
 
